@@ -130,6 +130,9 @@ Once construction of a Vimomium tower is complete there are several inscriptions
 
 10. Thermitium explosion: Found in the chapter of fire in the scrolls. Once a card that has this inscription and is enchanted into a card. And then inscribed into a vimomium tower. The tower will send bombs that detonate on impact. If a thermitium explosion lands on an enemy with the Stones Blasts stone affliction. The stone will start an incendiary reaction, cashing a short burn over time on the enemy.  
 
+11. Based punch: The inscription for this can be found in chapter: "How to become an alpha" in the Luanara scrolls. Once a card with this inscription is inscribed unto a tower. The tower will throw a white glowing fist upon any enemies it sees. Since the tower is now based. Any enemies that has been hit by a divine strikes tower and also hit by a based punch will get lightning punch. This results in a big increase in damage upon hit.
+
+
 ### Scrolls of Enhancement 🧪
 TearJoy wasn't the only one who was doing experiments with the scrolls and Vimomium ore. Many times after sieges you could see either SPK or Prymus working in the underground laboratories that were located near the siege lines. But on one particular day... SPK would discover something extraordinary.. Something that could turn the tide in the war against Skigippity Toilet and NerdDiva... 
 
