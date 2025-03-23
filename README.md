@@ -62,6 +62,7 @@ Together, these guys are the architects for the defense of Vibydoria... But will
 
 3. Artiexians (This mercenary legion is ruthless and merciless. Resembling orcs of time old but with much darker skin. They are great warriors however many consider them to be overpriced. And there are cheaper and even more effective mercenaries like the Amderians. The tribe of Linusia Dryverians who live in Vibydoria are the sworn enemies of the Artiexians. The war between these two factions started when Tirvaldia, the tribal leader of the Linusian Dryverians cast the Eff Yuu spell on Kudaxia the captain of the Artiexian army. Rendering him incapacitated for 200 years)
 
+4. Hya Hyas (These odd looking and small mustaschiod creatures recently joined the ranks of the NerdDiva legions. They commumicate by via incomprehensible acoustic sounds)
 
 ### The Unholy Armies of Altermon
 
@@ -131,6 +132,8 @@ Once construction of a Vimomium tower is complete there are several inscriptions
 10. Thermitium explosion: Found in the chapter of fire in the scrolls. Once a card that has this inscription and is enchanted into a card. And then inscribed into a vimomium tower. The tower will send bombs that detonate on impact. If a thermitium explosion lands on an enemy with the Stones Blasts stone affliction. The stone will start an incendiary reaction, cashing a short burn over time on the enemy.  
 
 11. Based punch: The inscription for this can be found in chapter: "How to become an alpha" in the Luanara scrolls. Once a card with this inscription is inscribed unto a tower. The tower will throw a white glowing fist upon any enemies it sees. Since the tower is now based. Any enemies that has been hit by a divine strikes tower and also hit by a based punch will get lightning punch. This results in a big increase in damage upon hit.
+
+12. Charisma maximiers: Also found in the "How to become alpha chapter" of the Luanara scrolls. Once the inscription from the scroll is placed on a card. It enables you to inscript a tower with the power of "Rizz". A Charisma maximier tower will increase the rizz of the towers nearest to it, allowing the buffed towers to shoot projectiles at a greater speed. 
 
 
 ### Scrolls of Enhancement 🧪
