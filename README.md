@@ -71,6 +71,9 @@ Together, these guys are the architects for the defense of Vibydoria... But will
 
 3. Onians (Intelligent, trained in reasoning and cunning warriors. They are one of the best of the best in Altermon's armies. They do however have a tendency to yap a lot) 
 
+
+4. Teej Blamerians (Gremlin like creatures that don't sleep much, they are usually more active during the night. If you wake up in the morning and you get this feeling that stuff has been moved around, or seemingly normal things thrown into the trash. You might have a Teej Balmerian infestation in your house)
+
 However, these three guys have something that Altermon and Hung doesn't have: 
 
 The rare ore Vimomium & the magical scrolls of Luanara. 
