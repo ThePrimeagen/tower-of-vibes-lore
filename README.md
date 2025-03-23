@@ -46,7 +46,7 @@ Together, these guys are the architects for the defense of Vibydoria... But will
 
 6. Lixor Freðmar (He's a cyborg that can't distinguish between different women)
 
-7. Grust Kommunita (A disgusting dark purple creature who loyally serves Altermon, from his repulsive orifices he spews out toxic gas and seeks to revise, rewrite and change any knowledge that he encounters. One his own personal goals is to get his hand on the Scrolls of Luanara so that he rewrite it for his dark and twisted purposes)
+7. Grust Kommunita (A disgusting dark purple creature who loyally serves Altermon, from his repulsive orifices he spews out toxic gas and seeks to revise, rewrite and change any knowledge that he encounters. One his own personal goals is to get his hand on the Scrolls of Luanara so that he can rewrite it for his dark and twisted purposes)
 
 8. Manuella Koddicka (A huge man with muscles made of pure spite. He hates Vibydoria with every core of his being and is the main architect behind the removal of the world's vibes.) 
 
