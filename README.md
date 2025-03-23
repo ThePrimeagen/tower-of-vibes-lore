@@ -85,7 +85,7 @@ Combining Vimomium with the Luanara scrolls and the three guys are capable of en
 
 
 ### Vibydoria 🌴
-The lush lands of Vibydoria is famous for their Zigelian tree that grow the light yellow fruit known as noprepops. However Vibydoria is nothing without their people. Here people are reasonable and don't hop on new trends constantly. The people who live here enjoy greenery, productive use of their time in the form of actually manually doing work by hand instead of letting others do the work for them. 
+The lush lands of Vibydoria is famous for being the only place on Earth where the Zigelian trees grow. These trees produce during the summertime the light yellow fruit known as noprepops. However Vibydoria is nothing without their people. Here people are reasonable and don't hop on new trends constantly. The people who live here enjoy greenery, productive use of their time in the form of actually manually doing work by hand instead of letting others do the work for them. 
 For vacation spots the people here reccomend going to the north of Vibydoria where Kalfornaya is located, with lots of beaches and good weather Kalfornaya is a go to spot of rest and relaxation.
 
 ### Mordoria 🌋
