@@ -11,7 +11,7 @@ Together the emperor and the king has set their sights on the lands of Vibydoria
 ![Image](https://github.com/user-attachments/assets/343eb1a4-a21c-4766-948c-a8d70767b0f1)
 
 ##### Lore of Prymus:
-Prymus saved an entire city populated by the Gophermen from the evil demon Brendaria Eichmermaz. Primus was able to stop Brendaria from brainwashing the entire population into using jarvscryptus for literally everything. Like, bro. The demon wanted the Gophermen to build chairs, tables and even houses using jarvscryptus. FYI jarvscryptus is hammer made out of one single thread of wool
+Prymus saved an entire city populated by the Gophermen from the evil demon Brendaria Eichmermaz. Primus was able to stop Brendaria from brainwashing the entire population into using jarvscryptus for literally everything. Like, bro. The demon wanted the Gophermen to build chairs, tables and even houses using jarvscryptus. FYI jarvscryptus is a hammer made out of one single thread of wool
 
 
 ### TearJoy: Shaman from the forest of Zeroindexia
