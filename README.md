@@ -110,7 +110,7 @@ Once construction of a Vimomium tower is complete there are several inscriptions
 
 1. Dawn of Fire: From the scrolls on page 669 this card gives the Vimomium tower the ability to shoot out projectiles of fire, searing through flesh and causing burn
 
-2. Spear of Luanara: Found on page 56 in the scrolls, once this card is enscribed unto a tower the tower starts shooting arrows at the enemy
+2. Spear of Luanara: Found on page 56 in the scrolls, once this card is enscribed unto a tower the tower starts shooting arrows at the enemy (Basically the " basic archer tower")
 
 3. Winds of Cold: Found on page 700 in the scrolls, enscribe this card unto a tower and the tower will shoot cold piercing winds that slows enemies down, causing them great damage due to hypothermia 
 
@@ -123,6 +123,8 @@ Once construction of a Vimomium tower is complete there are several inscriptions
 7. Watery water: This inscription is found on chapter 70 regarding water divination. Once this enscribed unto a tower it will shoot high jet streams of water upon its enemies. If the enemy is freezing will cause EXTREME cold shock. Causing the enemy extra damage. 
 
 8. Holy oil: This inscription is from chapter regarding holy rites in the Luanara scrolls. When a card with this inscription is embedded unto a tower the tower throws crystal vials of holy oil unto the enemy dealing minmal damage. If a an enemy has been shot be a Dawn Of Fire tower and burn is applied. The burn increases in damage and also increases the duration of burn on an enemy
+
+9. Sun beam: This inscription can be found on page 233 in the Luanara scrolls, when a card with this inscription is enscribed unto a tower. The tower shoots out a rectangular beam of the holiest of ultraviolet rays. If an enemy who has the toxic balls affliction gets hit by a sun beam. The sun beams will act as a catalyst for the toxicity that an enemy experience and cause more damage to said enemy. 
 
 
 >One thing that I suggested before Low Level went to bed is to place the tower first and then place a specific card unto that tower. However, even though this might be feasible. It could potentially slow down the game flow, as this would require extra steps for the player to take in order for them to start placing towers and start killing enemies. However, this could open up potential for changing.. You could call it the **elemental type** of a specific tower. Let's say you inscribe "Toxic balls" onto a tower. You might want to inscribe Dawn of Fire if the next waves of enemies are resistant to fire or something. 
