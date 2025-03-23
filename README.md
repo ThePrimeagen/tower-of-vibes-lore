@@ -65,7 +65,7 @@ Together, these guys are the architects for the defense of Vibydoria... But will
 
 ### The Unholy Armies of Altermon
 
-1. Chattikas (Intelligent, cunning and relentless. They are the results of horrible experimentation into creating the perfect soldier that is part flesh part unholy machine. These are the loyal servants of Altermon. With white covering and chromium covering their body. They resemble mutated humans. Their only known weakness being their memory, and they also sometimes hallucinate) 
+1. Chattikas (Intelligent, cunning and relentless. They are the results of horrible experimentation into creating the perfect soldier that is part flesh part unholy machine. These are the loyal servants of Altermon. With white fleshy skin and chromium platings covering their body, they resemble mutated humans. The mere sight of these creature is revolting. Their only known weakness being their memory, and they also sometimes hallucinate) 
 
 2. Azurians (Recently with the Micrasoftikka accords, which essentially made Windosia a vassal state under Altermon's empire. The Azurians and their weak president Billor Gatsu are forced to fight against Vibydoria)
 
