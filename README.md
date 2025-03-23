@@ -97,7 +97,7 @@ Kind of mid, resembles Ohio a lot. Everything is super expensive here
 Skibidor is the main seat for the Skigippity Toilet empire, and the capital Dobdijes is located here. Everyone here is under the iron fist of Altermon. And it shows, almost every square inch of Skibidor is for the sole purpose of making room for metal buildings, structures and idolatrous erections dedicated to sole purpose of trying to summon The Messiah. Because of this Skibidor is gray and lifeless and the living areas dedicated for housing its inhabitants is kept to a minimum, so as to make sure that no more than the absolute basic needs occupy space that should be dedicated to summoning their Messiah
 
 
-## The Luanara scrolls 📜
+## The Luanara scrolls 📜 Luanara cards 🃏
 Some say the Luanara scrolls are older than time itself, others say that the scrolls are a creation from a bygone era where Wizards, sorcerers and shamans had access to more divine knowledge. 
 It is also said that the Luanara scrolls that are being kept in the catacombs of Vybidoria are not the only Luanara scrolls.. But that there might be more like them... 
 
