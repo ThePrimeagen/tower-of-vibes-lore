@@ -2,7 +2,7 @@
 ## Tower of Vibes: D.A.D.D.Y  (Defence Against Dumbed-down AI & Diluted Yields)
 # The antagonists: **Samuel Altermon**, **Jeans Hung** & the protagonists **Prymus,** **TearJoy**, **Short Plane Knowledge**
 
-So the story takes place in a an alternate universe where Samuel Altermon who is the emperor and Big PIPI of the Empire of Skigippity Toilet and Mordoria. Has **almost** taken over the **entirety** of planet Earth and removed 69% of all of the vibes. The evil Sam Altermon has gone into an alliance with the evil Jeans Hung who is the king of NerdDiva & sole ruler of Wisconsin, Madagascar and Brazil. 
+So the story takes place in a an alternate universe where Samuel Altermon who is the emperor and Big PIPI of the Empire of Skigippity Toilet and Mordoria. Has **almost** taken over the **entirety** of planet Earth and removed 69% of all of the vibes. The evil Samuel Altermon has gone into an alliance with the evil Jeans Hung who is the king of NerdDiva & sole ruler of Wisconsin, Madagascar and Brazil. 
 
 Together the emperor and the king has set their sights on the lands of Vibydoria. The last bastion against the forces of Reddit shiposts, CEO's during interviews saying that the next programming language will be English. And the minions of NerdDiva and Skigippity toilet forcing the innocent people of Vibydoria to start integrating ai slop into production....Who will defend Vibydoria but three brave heroes...
 
