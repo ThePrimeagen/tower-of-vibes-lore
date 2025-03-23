@@ -1,5 +1,5 @@
 # LOREDORIA
-
+## Tower of Vibes: D.A.D.D.Y  (Defence Against Dumbed-down AI & Diluted Yields)
 # The antagonists: **Samuel Altermon**, **Jeans Hung** & the protagonists **Prymus,** **TearJoy**, **Short Plane Knowledge**
 
 So the story takes place in a an alternate universe where Samuel Altermon who is the emperor and Big PIPI of the Empire of Skigippity Toilet and Mordoria. Has **almost** taken over the **entirety** of planet Earth and removed 69% of all of the vibes. The evil Sam Altermon has gone into an alliance with the evil Jeans Hung who is the king of NerdDiva & sole ruler of Wisconsin, Madagascar and Brazil. 
